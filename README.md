@@ -17,5 +17,4 @@ Mediante la consecución de estos objetivos, los estudiantes tendrán un *perfil
 
 Este máster nos permitirá tener grandes oportunidades de trabajo debido a la red de contactos de la misma.
 
-
-UIYHIYHIHUYIHUIUH
+bla bla bla
